@@ -1,8 +1,1 @@
-- 👋 Hi, I’m @asa-mitaka3
-- 👀 I’m interested in Computer Science, watching Anime, reading Manga, playing Video Games (Genshin Impact, Blue Archive, Tekken, Naruto Ultimate Ninjastorm, Fifa, Dragonball fighterz, Zelda...)
-- 🌱 I’m currently learning to provide Dockes System for customers
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me Discord: toji_fushiguro____
-- 😄 Pronouns: he/him
-- ⚡ Fun fact: Im 1.80m tall
-- ✨ UID Genshin Impact:
+Prince of Egypt x Love on me
